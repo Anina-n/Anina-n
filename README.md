@@ -5,6 +5,6 @@
 
 💞️ I’m looking to collaborate on projects related to software development, game design, and app development using design patterns.
 
-📫 How to reach me: You can reach me via email at xinyu.shu@sydney.edu.au.
+📫 How to reach me: You can reach me via email at aninashu@gmail.com
 
 😄 Pronouns: She/Her
